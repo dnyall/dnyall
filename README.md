@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @dnyall
 - 👀 I am interested in anything related to technology
-- 🎧 also baby dj
 
 - 📫 How to reach me :
 - https://t.me/dny_all
